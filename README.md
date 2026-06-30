@@ -36,7 +36,7 @@ Let's Connect
 
 I'm currently open to freelance projects, collaborations, and contract work.
 
-Email: [your-email@domain.com]
+Email: [itshahriershanto@gmail.com]
 Portfolio: [dev-shahriershanto.pantheonsite.io]
 LinkedIn: [https://www.linkedin.com/in/shahriershanto/]
 
